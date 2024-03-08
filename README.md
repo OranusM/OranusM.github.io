@@ -1,9 +1,9 @@
 # OranusM.github.io
-I like to read more.
 
 Welcome to my world
 
+About me
 
 Its' Oranus Mahmoodi
 
-I am childcare provider
+I am childcare provider.
